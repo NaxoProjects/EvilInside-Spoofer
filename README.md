@@ -1,4 +1,4 @@
-# Evil Inside Spoofer
+# EvilInside Spoofer
 Cracked spoofer https://www.elitepvpers.com/forum/rust-trading/4788146-evil-inside-spoofer-ud-10-months.html
 
 
